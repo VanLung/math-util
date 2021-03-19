@@ -8,7 +8,7 @@
 * (TBA...)
 
 #### Connect me via
-[My Facebook](https://www.facebook.com/vanlung)
+[My Facebook](https://www.facebook.com/your.vanlung/)
 [My email](mailto: lung2566555@gmail.com)
 
 ©2021 NGUYỄN VĂN LƯNG
